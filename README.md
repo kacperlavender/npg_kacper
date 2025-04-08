@@ -1,1 +1,1 @@
-To jest plik README
+zamienione przez druga osobe
